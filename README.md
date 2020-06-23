@@ -1,2 +1,3 @@
 # new-project
-je crée un projet comme celui ci pour demarer
+je voudrai aller sur mars 
+et jadore la bouf chinoise 
